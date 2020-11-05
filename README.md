@@ -1,2 +1,3 @@
-# Teju
-initial Commit :)
+ahh!! Welcome to my world :)
+
+TEJU
